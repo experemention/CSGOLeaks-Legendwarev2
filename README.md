@@ -1,3 +1,4 @@
 # Legendware
 ## TODO:
-+ LUA.
+CSGO/Legendware v2 SOURCE
+CRACKED SOFTWARE
